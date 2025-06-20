@@ -22,3 +22,6 @@ lols
 ![ssws](https://github.com/user-attachments/assets/10e248fb-d543-4eb9-a7a8-6415dfeac0e8)
 ![Captura_de_tela_2023-12-12_224844](https://github.com/user-attachments/assets/ef12d328-5102-40a7-941e-92de83fa7d6c)
 ![Untitled](https://github.com/user-attachments/assets/5185d5c6-c02f-4b0c-a631-9172469ccdda)
+![2025-06-20T19:20:18,067170651-03:00](https://github.com/user-attachments/assets/0649cc2f-5db0-4359-a769-c4e00f3fbfd2)
+![2025-06-20T19:20:30,363400128-03:00](https://github.com/user-attachments/assets/48dc4a50-c591-47ba-9dec-010fbf65a2ed)
+![2025-06-20T19:20:35,667986738-03:00](https://github.com/user-attachments/assets/54680ad1-144e-4cee-826f-e1e0353a9373)
