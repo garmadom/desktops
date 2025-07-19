@@ -18,8 +18,8 @@ lols
 ![gamr](https://github.com/user-attachments/assets/2d7472c5-2a24-43b3-a895-72bec8a87fec)
 ![Snapshot_2024-11-05_19-11-01](https://github.com/user-attachments/assets/77d9f869-dfa8-42bb-8aed-b51f08f31297)
 ![Screenshot_2023-09-25_12-18-06](https://github.com/user-attachments/assets/ad8908c8-3d1e-4acd-8bf9-2a4d1252e260)
-![sqwsws](https://github.com/user-attachments/assets/a117e313-375f-465e-be26-de57a31601dc)
-![ssws](https://github.com/user-attachments/assets/10e248fb-d543-4eb9-a7a8-6415dfeac0e8)
+![sqwsws](https://github.com/user-attachments/assets/a117e313-375f-465e-be26-de57a31601dc)<img width="2559" height="1079" alt="2025" src="https://github.com/user-attachments/assets/4216bde7-5b30-4171-b9bb-d2620767493d" />
+![ssws](https://github.com/user-attachments/assets/10e248fb-d543-4eb9-a7a8-6415dfeac0e8)<img width="2559" height="1079" alt="wdsw" src="https://github.com/user-attachments/assets/27f29486-c6fb-467b-b0bd-7b017798b8d7" />
 ![Captura_de_tela_2023-12-12_224844](https://github.com/user-attachments/assets/ef12d328-5102-40a7-941e-92de83fa7d6c)
 ![Untitled](https://github.com/user-attachments/assets/5185d5c6-c02f-4b0c-a631-9172469ccdda)
 ![2025-06-20T19:20:18,067170651-03:00](https://github.com/user-attachments/assets/0649cc2f-5db0-4359-a769-c4e00f3fbfd2)
